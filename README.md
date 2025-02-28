@@ -6,10 +6,11 @@
    they ⠀⠀them  ┈֯⠀𝅘𝅥
    </p>
 
-<p align="center">
- usually in global server, around DW area 
- </p>                      ⠀⠀ ⠀⠀ ⠀  ⠀
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
-   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
+
+  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
   ![](https://komarev.com/ghpvc/?username=antidosage&color=aaebe7&style=flat&label=stars)
 </p>  ⠀
+
+<p align="center">
+ usually found in safe global, dw areas 
+ </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
