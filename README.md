@@ -11,5 +11,5 @@
 </p>  ⠀
 
 <p align="center">
- Usually in global server, around DW area
+ Usually in global server, around DW area ![](https://files.catbox.moe/h4alp6.png)
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
