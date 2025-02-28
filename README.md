@@ -1,9 +1,15 @@
-⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ϑϱ　saccharine　　︵︵　　﹑bodily 15﹒　ა
+<p align="center">
+​​ ϑϱ　saccharine　　︵︵　　﹑bodily 15﹒　ა
+</p>
 
-⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ they ⠀⠀them ┈֯⠀ 𝅘𝅥
+<p align="center">
+   they ⠀⠀them  ┈֯⠀𝅘𝅥
+   </p>
+   
+  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=aaebe7&style=flat&label=stars)
+</p>  ⠀
 
-⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀
-usually in safe global .
-
-![](https://komarev.com/ghpvc/?username=your-github-username&label=stars)
-⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀
+<p align="center">
+ Usually in global server, around DW area
+ </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
