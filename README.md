@@ -5,11 +5,11 @@
 <p align="center">
    they ⠀⠀them  ┈֯⠀𝅘𝅥
    </p>
-   
-  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=aaebe7&style=flat&label=stars)
-</p>  ⠀
 
 <p align="center">
- Usually in global server, around DW area 
- </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
+ usually in global server, around DW area 
+ </p>                      ⠀⠀ ⠀⠀ ⠀  ⠀
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
+ <p align="center">
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=aaebe7&style=flat&label=stars)
+</p>  ⠀
