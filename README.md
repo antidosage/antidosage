@@ -14,3 +14,7 @@
 <p align="center">
  usually found in safe global, dw areas 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
+
+<p align="center">
+ read rentry for more info!
+ </p>                             
