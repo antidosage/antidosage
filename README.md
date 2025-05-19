@@ -16,5 +16,4 @@
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
 
 <p align="center">
- read rentry for more info!
  </p>                             
