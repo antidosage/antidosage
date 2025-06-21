@@ -8,7 +8,7 @@
 
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=aaebe7&style=flat&label=JESTS)
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=2f2fb6&style=flat&label=JESTS)
 </p>  ⠀
 
 <p align="center">
