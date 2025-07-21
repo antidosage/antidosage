@@ -1,14 +1,14 @@
 <p align="center">
-​​ ϑϱ　<ins>Corset</ins>　　︵　　Bodily 15　𓈒 ◌
+​​ ϑϱ　<ins>Thorne</ins>　　︵　　15 '09　𓈒 ◌
 </p>
 
 <p align="center">
-   They⠀⠀𓈒⠀⠀<ins>Them</ins> 
+   He⠀⠀𓈒⠀⠀<ins>Him</ins> 
    </p>
 
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=2f2fb6&style=flat&label=JESTS)
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=000000&style=flat&label=bats)
 </p>  ⠀
 
 <p align="center">
