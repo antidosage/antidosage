@@ -1,14 +1,14 @@
 <p align="center">
-​​ <img src="https://i.postimg.cc/cJMGPbHg/download-14.png">
+​​ <img src="https://i.postimg.cc/C5YgTfwF/GR9JHk-Ra-UAANheg-(2).png">
 </p>
 
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=ff85c9&style=flat&label=CUTIES)
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=000000&style=flat&label=SINNERS)
 </p>  ⠀
 
 <p align="center">
- 𐔌ㅤ ˚ㅤ Find us in Pjsk , HH , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
+ 𐔌ㅤ ˚ㅤ Find us in HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
 
 
