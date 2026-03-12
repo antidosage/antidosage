@@ -1,14 +1,13 @@
 <p align="center">
-​​ <img src="https://i.postimg.cc/C5YgTfwF/GR9JHk-Ra-UAANheg-(2).png">
+​​ <img src=https://i.postimg.cc/wxGq2HY6/Glpx-ML8WQAAyq-E0-(1).png width="600" height="650" />
 </p>
 
-
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=000000&style=flat&label=SINNERS)
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=1b221d&style=flat&label=RESIDENTS)
 </p>  ⠀
 
 <p align="center">
- 𐔌ㅤ ˚ㅤ Find us in HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
+ 𐔌ㅤ ˚ㅤ Find us in RE , HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
 
 
