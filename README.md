@@ -1,13 +1,11 @@
-<p align="center">
-​​ <img src=https://i.postimg.cc/wxGq2HY6/Glpx-ML8WQAAyq-E0-(1).png width="600" height="650" />
-</p>
+
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
   ![](https://komarev.com/ghpvc/?username=antidosage&color=1b221d&style=flat&label=RESIDENTS)
 </p>  ⠀
 
 <p align="center">
- 𐔌ㅤ ˚ㅤ Find us in RE , HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
+ 𐔌ㅤ ˚ㅤ Find me in RE , HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
 
 
