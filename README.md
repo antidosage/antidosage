@@ -2,11 +2,11 @@
  Semi active
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=antidosage&color=b82e45&style=flat&label=JESTERS)
+  ![](https://komarev.com/ghpvc/?username=antidosage&color=33282e&style=flat&label=FATUI)
 </p>  ⠀
 
 <p align="center">
- 𐔌ㅤ ˚ㅤ Find me in RE , HH , TADC , or any fandom areasㅤ ˖̣̣̣ ͜ ㅤ ! 
+ 𐔌ㅤ ˚ㅤ Usually in Fandom Areasㅤ ˖̣̣̣ ͜ ㅤ ! 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
 
 
