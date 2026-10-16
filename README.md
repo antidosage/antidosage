@@ -1,21 +1,25 @@
  <p align="center"> 
   
   <img src="https://i.postimg.cc/q745LPYw/tumblr-ca8304aabd40e72ad0c0e0b0bde6d353-fe5d86b3-2048.gif">
+  <img width="200" height="200" src="https://i.postimg.cc/y6GQ3gTs/tumblr-4ac873532df4f9eed1e9ddd32764d9ab-6fd45379-1280-(1).png"> 　<img width="200" height="200" src="https://i.postimg.cc/DftVkYHr/tumblr-3fdd92467ac09ee38435f50521a5770d-58d7f68f-1280-(1).png">
+<br>
 
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  " ʸᵒᵘ'ʳᵉ ˡᵒˢᶦⁿᵍ ʸᵒᵘʳ ᵖʳᵒᵍʳᵉˢˢ ᵗᵒ ᶜᵒᵘᵍʰᶦⁿᵍ ᶠᶦᵗˢ "
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Felipa&size=30&duration=4000&pause=450&color=A65A70&center=true&width=435&lines=You+lay+down+to+die.;You're+becoming+its+bitch.;You're+losing+your+progress,;To+coughing+fits.;Your+memorys+failing,;You're+losing+your+friends.;Identitys+slipping-;But+you'll+understand)](https://git.io/typing-svg)
 </p>
-
+<br>
 
 
  <div align="center">
-
+  
   ![](https://komarev.com/ghpvc/?username=antidosage&color=33282e&style=flat&label=PROXYS)
 </div>
+<br>
 
 <p align="center">
-  ֺ  ୨ৎ  𓈒　　𝔽ind us in CRP + TADC Areas or with our friends . 
+  ⎯⎯　𝔽ind us in the CRP area or with our friends . 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ 
+<br>
 
 
     
